@@ -141,7 +141,7 @@ Special thanks to:
 
 ### **💬 Feedback & Support**
 
-If you encounter any issues or have suggestions, feel free to open an issue or reach out at (mailto:sairohithtappatla45@gmail.com).
+If you encounter any issues or have suggestions, feel free to open an issue or reach out at (mailto:sahasra.peram.77@gmail.com).
 
 ---
 
